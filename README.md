@@ -14,3 +14,9 @@ Here are some ideas to get you started:
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 -->
+- Soy estudiante y busco aprender cosas de programación en GitHub.
+- Estoy aprendiendo a programar en Python, cualquier consejo es bienvenido.
+- Me gusta Hanni Pham de NewJeans.
+19 años
+he/him 
+🥀
